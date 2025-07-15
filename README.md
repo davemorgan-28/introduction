@@ -1,1 +1,7 @@
-# introduction
+- Hi, I am @uiux.dave
+- I’m interested in Figma & UI UX Design
+- I’m currently learning UI UX Design
+- You can reach me on:
+- Instagram: @neilwebsite
+- Behance: @davemorgan13
+- Dribbble: @neilwebsite
